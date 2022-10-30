@@ -1,1 +1,3 @@
-# SeokjinKim00
+## Computer Engineering Student
+
+
